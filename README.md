@@ -36,6 +36,12 @@
  ![image](https://user-images.githubusercontent.com/113594316/198233336-dd9f5c19-481b-486a-928a-99c32a732f89.png)
 
  ## OUTPUT
+![AUTODESK 2_page-0001](https://github.com/user-attachments/assets/beda4785-bf15-4b9e-b351-d8220173049d)
+
+
+
+
+
  
  
  ## RESULT
